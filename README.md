@@ -10,7 +10,7 @@
 <p align="center">
  ᛝ     mosztly afk/offtab    ◞    whis2int always   !!
   <p align="center">
- ‎ᘎ usually with my boyfriend lejan, keb/bunga, or viz!  ⊹
+ ‎ᘎ usually with my boyfriend lejan, kebby, or kiddo viz!  ⊹
   
  <p align="center">
     <img width="400" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31neovqlgcu5nmy5j4vqisn7iike&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=dbd1b8&bar_color_cover=false)]"alt=spotify" >
