@@ -10,7 +10,7 @@
 <p align="center">
  ᛝ     mosztly afk/offtab    ◞    whis2int always   !!
   <p align="center">
- ‎ᘎ usually with my lejan, kebby, or viz!  ⊹
+ ‎ᘎ usually with lejan, kebby, or viz!  ⊹
   
 
  <p align="center">
