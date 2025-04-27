@@ -9,7 +9,7 @@
  ᛝ     mosztly afk/offtab    ◞    whis2int always   !!
   <p align="center">
   <p align="center">
-  note! any ship is fine to int as long as its legal <3
+  proship dniuf,, specificially open proshippers!
        <p align="center">
   ◠    irl castiel/aziraphale   ୨୧   doubles iwec or dni,..sorry!!
    <p align="center">
