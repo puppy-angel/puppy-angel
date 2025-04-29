@@ -13,7 +13,7 @@
        <p align="center">
   ◠    irl castiel/aziraphale   ୨୧   doubles iwec or dni,..sorry!!
    <p align="center">
-    ‎ᘎ   please dont include me in any drama on ponytown for no reason. ⊹
+    ‎ᘎ @raki-star is my alt! . ⊹
  <p align="center">
     <img width="400" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31neovqlgcu5nmy5j4vqisn7iike&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=d0d0d0&bar_color_cover=false)]"alt=spotify" >
 </p>
