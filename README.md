@@ -9,7 +9,7 @@
  ᛝ     mosztly afk/offtab    ◞    whis2int always   !!
   <p align="center">
   <p align="center">
-  proship dniuf,, specificially open proshippers!
+  proshippers dniuf,, specificially open proshippers! (note that im not a proshipper, and i do not support them!)
        <p align="center">
   ◠    irl castiel/aziraphale   ୨୧   doubles iwec or dni,..sorry!!
    <p align="center">
